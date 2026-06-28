@@ -1,4 +1,4 @@
-# 
+# Automatic degen coin sniper bot add-ons for Mac OS | Ultimate degen coin sniper bot add-ons for PC Windows. Featuring price tracking and real-time trading — optimized for maximum performance on every platform.
 
 
 
