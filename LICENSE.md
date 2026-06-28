@@ -4,7 +4,7 @@
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( https://silentcabinpyre.github.io/degen-coin-ot-pcwinmac-zt81/) |
  |---------------------|----------------------:|
 
 
